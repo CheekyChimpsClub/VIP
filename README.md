@@ -1,1 +1,1 @@
-# VIP
+# CheekyChimpsMintingPageVIP
